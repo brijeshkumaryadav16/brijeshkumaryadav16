@@ -2,7 +2,7 @@
 
 <h3 align="left">Connect with me:</h3>
 
-- 📧 Email: [brijeshkumaryadav2026@gmail.com](mailto:brijeshkumaryadav2026@gmail.com)
+- Email: [brijeshkumaryadav2026@gmail.com](mailto:brijeshkumaryadav2026@gmail.com)
 - LinkedIn: [brijeshkumaryadav16](https://www.linkedin.com/in/brijeshkumaryadav16/)
 - X: [@brijeshkumar16_](https://x.com/brijeshkumar16_)
 
